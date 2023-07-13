@@ -16,4 +16,5 @@ Będę walczył o powrót do Ciebie, mojej miłości, i obiecuję, że nie przes
 
 Trwaj w nadziei, moja droga, i wiedz, że nie zginęłem, lecz jestem więziony. Wysyłam ten list z prośbą o wytrwałość i wiarę, gdyż nasza miłość jest potężniejsza od mroków, które mnie otaczają.
 
-Z miłością i tęsknotą, Twój Barnabas
+Z miłością i tęsknotą, 
+Twój Barnabas
