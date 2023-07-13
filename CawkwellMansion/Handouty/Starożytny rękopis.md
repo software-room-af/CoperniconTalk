@@ -1,5 +1,6 @@
-Dziennik Roberta Aldricha Wpis z dnia 20 lipca 
-Od długiego czasu podróżuję po wyspach w poszukiwaniu ukrytych tajemnic, ale to, co odkryłem na wyspie Cawkwella, przerasta wszelkie moje oczekiwania. Tu, wśród niebezpiecznych krain i starożytnych świątyń, znalazłem rękopis, który obiecuje moc nieznanej mi wcześniej. Rękopis ten opowiada o starożytnych istotach i ich wielkich podbojach. Słowa te wprawiają mnie w zdumienie i przerażenie zarazem. Oto przepisany tekst z tego rękopisu: 
+Dziennik Roberta Aldricha 
+Wpis z dnia 20 lipca 1920
+Od długiego czasu podróżuję po wyspach w poszukiwaniu ukrytych tajemnic, ale to, co odkryłem na wyspie Arran, przerasta wszelkie moje oczekiwania. Tu, wśród niebezpiecznych krain i starożytnych świątyń, znalazłem rękopis, który obiecuje moc nieznanej mi wcześniej. Rękopis ten opowiada o starożytnych istotach i ich wielkich podbojach. Słowa te wprawiają mnie w zdumienie i przerażenie zarazem. Oto przepisany tekst z tego rękopisu: 
 
 "Wciąż obserwujemy z mrocznych głębin kosmosu i śpiewamy hymny niezrozumiane przez ludzkie ucho. Podążamy przez wymiary, ukrywając nasze istnienie wśród gwiazd na wyspę zatopioną w morzu mgieł i otoczoną cieniem nieznanego.
 
@@ -13,4 +14,4 @@ Ale ostrzegamy: nieodpowiednie wypełnienie rytuału przyniesie zagładę. Moc W
 
 A więc, niech ci, którzy odważą się sięgnąć po ten mrok, wiedzą, że nie ma odwrotu. Raz wpuścieni w tę spiralę, zostaną wciągnięci w mroczne objęcia wszechświata i utopią się w oceanie niepojętego."
 
-Te słowa rozpalają moją ciekawość i pragnienie zgłębienia mocy, które ukryte są na tej wyspie. Starożytne rytuały, zaklęcia i proroctwa - wszystko to czeka na odkrycie. Moc, którą obiecują, może przewyższać wszelkie granice naszego pojmowania. Jednak muszę zachować ostrożność. 
+Te słowa rozpalają moją ciekawość i pragnienie zgłębienia mocy, które ukryte są na tej wyspie. Starożytne rytuały, zaklęcia i proroctwa - wszystko to czeka na odkrycie. Moc, którą obiecują, może przewyższać wszelkie granice naszego pojmowania. Jednak muszę zachować ostrożność. Cawkwella obserwuje mnie każdego dnia. Nie ufa mi. Może czas się go pozbyć
