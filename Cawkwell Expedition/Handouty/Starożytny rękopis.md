@@ -14,4 +14,4 @@ Ale ostrzegamy: nieodpowiednie wypełnienie rytuału przyniesie zagładę. Moc W
 
 A więc, niech ci, którzy odważą się sięgnąć po ten mrok, wiedzą, że nie ma odwrotu. Raz wpuścieni w tę spiralę, zostaną wciągnięci w mroczne objęcia wszechświata i utopią się w oceanie niepojętego."
 
-Te słowa rozpalają moją ciekawość i pragnienie zgłębienia mocy, które ukryte są na tej wyspie. Starożytne rytuały, zaklęcia i proroctwa - wszystko to czeka na odkrycie. Moc, którą obiecują, może przewyższać wszelkie granice naszego pojmowania. Jednak muszę zachować ostrożność. Cawkwella obserwuje mnie każdego dnia. Nie ufa mi. Może czas się go pozbyć
+Te słowa rozpalają moją ciekawość i pragnienie zgłębienia mocy, które ukryte są na tej wyspie. Starożytne rytuały, zaklęcia i proroctwa - wszystko to czeka na odkrycie. Moc, którą obiecują, może przewyższać wszelkie granice naszego pojmowania. Jednak muszę zachować ostrożność. Cawkwella obserwuje mnie każdego dnia. Nie ufa mi. Może czas się go pozbyć...
