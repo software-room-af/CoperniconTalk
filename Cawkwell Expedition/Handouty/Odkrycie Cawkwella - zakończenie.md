@@ -1,5 +1,4 @@
--  osobliwego kształtu
-
+-  osobliwego kształtu gwizdek
 - wezwanie:
 	iah iah, Hastur, 
 	Hastur of aiaq vulgtm
