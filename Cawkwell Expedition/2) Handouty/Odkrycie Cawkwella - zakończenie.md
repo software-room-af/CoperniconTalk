@@ -1,6 +1,6 @@
 -  osobliwego kształtu gwizdek
 - wezwanie:
-	iah iah, Hastur, 
+	ia ia, Hastur, 
 	Hastur of aiaq vulgtm
 	vug lagln,
 	vulgtm aih aih Hastur
