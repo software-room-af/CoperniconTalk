@@ -1,6 +1,6 @@
 # Labirynty Laguny
 
-**Tło**: W głębinach weneckich kanałów czai się starożytna tajemnica. Bractwo Cienia Wody, tajne stowarzyszenie kultystów, pragnie uwolnić Marelai, uśpioną istotę z morskich głębin, która rywalizowała z innymi Wielkimi Starożytnymi o dominację nad oceanami.
+**Tło**: W głębinach weneckich kanałów czai się starożytna tajemnica. Bractwo "Umbra Ex Aqua", tajne stowarzyszenie kultystów, pragnie uwolnić Marelai, uśpioną istotę z morskich głębin, która rywalizowała z innymi Wielkimi Starożytnymi o dominację nad oceanami.
 
 **Lokalizacja**: Wenecja – z jej kanałami, mostami, starożytnymi budowlami i tajemniczymi zakamarkami.
 
